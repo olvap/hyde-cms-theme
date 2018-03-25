@@ -83,6 +83,12 @@ html {
   font-size: 3.25rem;
 }
 
+.sidebar-about img {
+  border-radius: 100%;
+  max-height: 250px;
+  margin: auto;
+}
+
 /* Sidebar nav */
 .sidebar-nav {
   padding-left: 0;
