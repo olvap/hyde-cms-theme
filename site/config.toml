@@ -1,7 +1,8 @@
 baseurl = "."
-languageCode = "en-us"
-title = "Hyde"
+languageCode = "es"
+title = "Un gato en la ventana"
 theme = "hyde"
 
 [params]
+  disqusShortname = "ungato"
   themeColor = "theme-base-09"
