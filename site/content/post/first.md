@@ -1,5 +1,25 @@
 ---
+title: Prostitutas en el congreso
 date: 2016-12-22T20:04:40.407Z
-title: First Post
 ---
-Tristique integer nulla, velit orci elementum posuere odit urna amet, vel est amet etiam pharetra curabitur. Risus feugiat pharetra sit dui tempor sed, malesuada metus, ut sociis elementum, placerat dolor curabitur velit. Fermentum nulla, lacus volutpat, et neque suscipit vel nisl at, suspendisse sed consectetuer in. Donec ut tellus massa, ipsum placerat tincidunt, nam nunc amet sit aenean, eleifend porttitor non fermentum. Wisi ultricies ante nec ac dignissim, in neque suscipit eu blandit et, quis imperdiet. Nulla massa velit turpis condimentum, sed vel leo magna dolor at vivamus, lorem metus odio euismod. Libero non leo. Vestibulum lacus iaculis rutrum sagittis ac, a purus, egestas turpis nulla posuere ut sed lacinia, tellus suspendisse massa et nostra. Nascetur hac, ipsum cum, sem eros, tellus suspendisse non. Netus pretium. Auctor integer ut quis urna vestibulum quis, vivamus ligula dictum vel, et amet auctor donec interdum sagittis, fusce mollis sociosqu sem aptent nullam, eu enim hymenaeos et. Ridiculus fusce interdum, vitae volutpat pulvinar mauris netus.
+Durante la polémica sesión en el congreso, la Diputada María Emilia Soria se refirió a sus colegas como las “prostitutas de Macri”. Pensando en esto, me doy cuenta que cometió un error por ignorancia. Ignoracia que, hasta hace un tiempo atrás, yo también padecí. Así que voy a intentar explicar su error, para ayudar desde mi lugar a aclarar los conceptos.
+
+
+
+Existen, para simplificar, al menos dos tipos de prostitutas.
+
+
+
+El primer tipo, son mujeres, niñas, y niños, que han sido forzados a ejercer la prostitución. Han sido privados de muchas de sus libertades y sometidos por la fuerza a llevar a cabo actos sobre los cuales carecen de control, mientras que sus opresores ven los beneficios. Son victimas. Y en este caso, no vale la comparación. En esas bancas, no hay ninguna víctima.
+
+
+
+El segundo tipo de prostituta son mujeres y hombres que en pleno uso de sus facultades han elejido ejecer una profesión que nuestra sociedad todavía ve con mala cara, pero que no es más que la oferta de un servicio a cambio de dinero. Estas mujeres poseen ética ptofesional, discresión. Cuidan su cuerpo porque es su instrumento de trabajo y cuidan de otros. Muchas de estas mujeres son militantes feministas que entienden que todos debemos tener la libertad de decidir. Tienen conciencia social. Son, por lo tanto, dignas trabajadoras. En este caso, la comparación tampoco vale.
+
+
+
+Lo que hubo en esta cámara es un cúmulo de traidores e hipócritas, que no les molesta que se tenga que pagar “la fiesta de 12 años”. Les molesta tenerla que pagar con el resto. Les indigna que mineros, sojeros o multimillonarios evasores de impuestos tengan que pagarla, pero no que la paguen los niños, los excombatientes de malvinas o los jubilados con la mínima. Mientras nos explican que con la reforma se ahorran 100.000 millones, nos dicen que los jubilados no van a cobrar menos. Esto, a menos que además de traidores sean alquimistas, los vuelve mentirosos.
+
+
+
+Si en esa sesión hubiese habido 2 prostitutas, una de cada tipo, la empoderada habría tomado a la víctima por los hombros y le hubiese dicho: “vení, luchemos por nuestros derechos en la calle y salgamos de acá. Esta gente no tiene vergüenza…”
