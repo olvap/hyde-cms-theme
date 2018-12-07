@@ -2,7 +2,7 @@
 title: Chicas con R mayúscula
 date: '2018-12-07T10:32:34-03:00'
 ---
-![](/img/blog/logomini.jpg)
+![Logo de R-Ladies Santa Fe, diseñado por Meli.](/img/blog/logomini.jpg)
 
 Este fin de año me encontró bajoneando sobre las cosas feas que han pasado. Gente que aprecio que está pasando por complicados momentos de salud. Amigues que han sufrido pérdidas de seres queridos. Mi hija enfermucha y sustos parentales, etc.
 
