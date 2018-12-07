@@ -32,4 +32,4 @@ Pero ahí estaba ella. Pegando carteles, golpeando puertas, recordándonos que n
 
 Melina y yo somos muy diferentes. Ella es organizadísima, yo dependo de mi agenda para recordar mi propia dirección. Ella tiene buena memoria para los nombres y las caras, yo desearía que todo el mundo lleve membrete. Ella es videogamer, yo soy boardgamer. Ella se preocupa horrores cuando algo falla, yo nos tranquilizo porque tantas cosas nos salieron bien.
 
-Pero a las dos nos gustan los gatos, la ciencia y nunca bajar los brazos. Ahora R-Ladies Santa Fe esta llena de personas dispuestas a cambiar al mundo, una línea de código a la vez.
+Pero a las dos nos gustan los gatos, la ciencia y nunca bajar los brazos. Ahora R-Ladies Santa Fe está llena de personas dispuestas a cambiar al mundo, una línea de código a la vez.
